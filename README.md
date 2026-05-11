@@ -1,1 +1,1 @@
-https://twinakorea.github.io/home/
+https://twinakorea.github.io/
